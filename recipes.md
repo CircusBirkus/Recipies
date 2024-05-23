@@ -114,3 +114,17 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Cheese Charcuterie 
+
+Ingredients:
+- 3 galllons of nacho cheese
+- 1 tub of lard
+
+Instructions:
+- Put all ingredients in industrial grade freezer
+- Freeze until all ingredients are firm
+- Cut frozen nacho cheese, and lard
+- Serve on a mahogany platter
+- Enjoy! 😀
+
