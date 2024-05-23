@@ -28,6 +28,15 @@ Instructions:
 4. Bake for 20-25 minutes or until lightly browned and bubbly.
 5. Serve hot with tortilla chips, pita chips, or crackers.
 
+### Whole Raw Cow
+
+Ingredients:
+- Whole cow carcass which is roughly 700 000 calories.
+
+Instructions:
+- Serve on a mahogany platter
+
+
 ### Bruschetta
 
 Ingredients:
